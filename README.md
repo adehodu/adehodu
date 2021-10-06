@@ -6,7 +6,5 @@ Got a project, lets chat!
 - ✈ I enjoy traveling
 - 🏊‍♀️ I actually lost my ability to swim (strange)
 
-<!---
-adehodu/adehodu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Connect with me
+https://www.linkedin.com/in/adehodu/
