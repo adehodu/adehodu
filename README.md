@@ -7,4 +7,4 @@ Got a project, lets chat!
 - 🏊‍♀️ I actually lost my ability to swim (strange)
 
 Connect with me
-https://www.linkedin.com/in/adehodu/
+– https://www.linkedin.com/in/adehodu/
